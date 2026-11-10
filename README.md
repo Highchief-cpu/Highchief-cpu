@@ -1,4 +1,4 @@
-# Hi, I'm Chinomso Michael 👋
+# Hi, I'm Michael 👋
 
 ### Computer Science Student | Aspiring Cybersecurity Professional
 
